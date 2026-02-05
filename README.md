@@ -1,2 +1,2 @@
 # bravoforhappiness.github.io
-web blog
+There is no any explanation here. :D
